@@ -1,0 +1,1 @@
+Once upon a time, there was a hare who bragged about being quick and good at running. He and many other animals lived in a forest.
