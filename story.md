@@ -1,1 +1,1 @@
-Once upon a time, there was a hare who bragged about being quick and good at running. He and many other animals lived in a forest. One of the animals was a tortoise, who was not fast, but was the wisest of all the animals. Everyone teased him, including the hare.
+Once upon a time, there was a hare who bragged about being quick and good at running. He and many other animals lived in a forest. One of the animals was a tortoise, who was not fast, but was the wisest of all the animals. However, the hare wound often tease him of being so slow.
